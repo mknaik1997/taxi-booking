@@ -40,29 +40,3 @@ ewq
 hdgshds
 csdcbsdncbsd
 \dscvsdn
-dsadsbcnbc hdcbdsab
-sdnbdnscbsnd ncbsdnbm
-dsnsdn  cndsbsnbm
-dn vnd d mdsa
-kdf kjxndg kjbxd
-xfklkn knxkg  kjjxb
-xnjgknkxf kjnxfb x
-xlbknknxlbllb
-kjsdf ksfjk kjbzjkfb
-djfjkb kjzbdkfbm  kzbdbmdn nb
-sdjkbsd bjzddfm,bn nb dkjbkbndf
-lkdjhf knbkbdfl ,mndjb mmndg
-sdjkfjhis bnafjfgnljjdffgn, fbfnf
-jhdfgjds idfjbshd jhbbvdf
-dfjbjhds bjb sdjbds
-dnbvsd jbjdff hb sb
-dfn  vj  vhbs v h v
-sdhbsdjfnm ns dvb sd vhbs
-dsjfh sdhfb kjdbf kjbbdf
-sdfkh jksjdbfk sbsdff
-dlkf df ,lbndf, ln
-kjsf kjsdbf kssdbff 
-dsfnjknsd fljndf sldkf s
-kjsd kjdfjkd kjbdf jkd
-d,mn mldnfn klsndklfn klzdzn
-dfmnbsd lknd sd knl  vn

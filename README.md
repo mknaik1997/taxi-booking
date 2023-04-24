@@ -39,18 +39,5 @@ wefbcwefc'ewlfcewbcfjewc
 ewq
 hdgshds
 csdcbsdncbsd
-\dscvsdn
-sudfg ejfg hbdjf jvjdf
-dskjhb kdsbfk kjbsf nb
-sgjbbdsg kbsgb bkbgs
-kjfd lkkdhfg lgff
-skjgh kjjigfoh d, lfflg
-fgnd lnlfngm  fk;n
-sdfjj lskdhfl klsdn
-sdlkfjd lmndif ,dngl
-sdlkkn sdlgnpsd ;m
-ksdfg kjbfgjdbgfdjbgfdk   kldnkgsdffgdf
-sghksg nkbdkfg ldfg,dfnbnmdffln
-skdfh kjabsdf jkbaf bkd
-sodif ksnsdgknn okdknsdl 
-dkjbf kjdbfm nsdf kbd
+\dscvsd
+qwirh lahef loiaael fn

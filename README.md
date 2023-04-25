@@ -29,17 +29,4 @@ bvbvv
 bvbv
 cbxncbncbndcbndbcn
 ndsbndbfcnbfcDSN
-cbdvcbdsvsb cds cdcbansbcsbjs
- xnxa cna na bcnas
- xns XMSmZ 
-nsdabncbndsbncd
-hdbjwhf
-dcwdcbwjcwd
-wefbcwefc'ewlfcewbcfjewc
-ewq
-hdgshds
-csdcbsdncbsd
-\dscvsd
-qwirh lahef loiaael fn
-oirg org oirg oirg o
-askdf kjdshf kjjbdsf kjjbsdkj 
+jdhc jksdsbb sdbk dsbobsd kbo

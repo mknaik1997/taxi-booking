@@ -1,0 +1,15 @@
+pipeline {
+    agent any
+    stages{
+        stage('git clone'){
+            steps{
+                git branch: 'dev', url: 'https://github.com/mknaik1997/taxi-booking.git'
+            }
+        }
+        stage('mvn package'){
+            steps{
+                sh 'mvn package'
+            }
+        }
+    }
+}

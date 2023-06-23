@@ -16,6 +16,6 @@ spec:
     spec:
       containers:
         - name: app1-nginx
-          image: kisha97/project55:v1.0.0
+          image: kisha97/project:v1.0.0
           ports:
             - containerPort: 8080
